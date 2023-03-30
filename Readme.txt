@@ -1,2 +1,2 @@
 README FILE
-My name is Eshia Smith
+My initals are EVS
